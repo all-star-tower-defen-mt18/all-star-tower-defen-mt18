@@ -1,4 +1,4 @@
-
+bedwars Script advanced auto-heal private server access is the best bedwars Script, featuring auto-heal and private server access. Safe and powerful
 
 
 ---
